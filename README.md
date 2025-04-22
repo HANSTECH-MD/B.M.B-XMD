@@ -187,7 +187,7 @@ That's all bot connected
 
 > CREDITS BMB-XMD🎐
 
-*by bmb xmd tech*</h6>
+*by HANSTECH-MD*</h6>
 
 </details>
 
